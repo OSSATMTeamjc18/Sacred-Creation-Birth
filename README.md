@@ -1,6 +1,6 @@
 # Sacred-Creation-Birth
 Kaila Doula Website
 
-##table of Contents
+## Table of Contents
 ***
 ### General Info
